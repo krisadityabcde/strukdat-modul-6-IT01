@@ -1,0 +1,1 @@
+# strukdat-modul-6-IT01
